@@ -11,11 +11,11 @@ people, get on board if you like! Let's talk!
 
 Mark
 
-imaginaryu.com
-spacerobot.com
-antinet.com
-foto21.com
-xyz247.com
-edm.red
-westbayarearealestate.com
-cat.network
+- imaginaryu.com
+- spacerobot.com
+- antinet.com
+- foto21.com
+- xyz247.com
+- edm.red
+- westbayarearealestate.com
+- cat.network
